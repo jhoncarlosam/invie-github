@@ -1,2 +1,2 @@
 # invie-github
-Tus mejores guitarras invie-sibles :v
+Tus mejores guitarras invie-sibles
